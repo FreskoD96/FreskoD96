@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @FreskoD96 y viva México chingaaaaa'
+- 👀 I’m interested in Games, Music and Hakuna Matata.
+- 🌱 I’m currently learning Data Science.
+- 💞️ I’m not looking to collaborate, but if I could help call me.
+- 📫 How to reach me on instagram @elfreskod.
+- ⚡ Fun fact: Esto lo hago pa' divertirme, pa' divertirme. 🎶🎶
